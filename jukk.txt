@@ -1,0 +1,1 @@
+Þetta er jukk sem á að fara inn í Git-ið
