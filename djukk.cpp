@@ -1,0 +1,1 @@
+Þessi er hinn svokallaði djukk-skrá sem  allir hafa beðið eftir.
